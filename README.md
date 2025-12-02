@@ -3,9 +3,9 @@
 
 Email Me 👉 ✉️ **awasthianshika43@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🌱 **I’m currently learning:** MERN
+- 🌱 **I’m currently exploring:** MERN
 - 📫 **How to reach me:** awasthianshika43@gmail.com
-- 😄 **Pronouns:** Anshika
+- 😄 **Pronouns:** Her/She
 - ⚡ **Fun fact:** I Love Tech and Tech Loves Me
   
 ## 🌐 Socials:
